@@ -6,7 +6,7 @@
 
 Fuel serves as a major part of our energy requirement. Petroleum, a major fuel is widely used in our everyday lives and also used to power automobiles, produce containers and to keep us warm. All plastic is made from it and used in cars, houses, computers, paraffin wax, paints and pharmaceuticals, at times it is also used as a solvent found in large quantities below the surface of the Earth and is used as fuel and raw material in the chemical industry.
 
-Conserving energy and fuel makes sense on different levels. It is wise to turn off your car at traffic signals, minimize the use of brakes and encourage car pooling. Spread awareness for fuel conservation amongst your friends and relatives. There are three areas where the motorist can save fuel- proper maintenance, efficient driving habits and intelligent purchase of a vehicle. One of the best ways to save fuel is to reduce speed, as speed increases, fuel economy decreases exponentially. Tyre pressure and car's dirty air filter should be checked, if not, it could harm its performance and economy. Petrol is also called black gold. </h3>
+areness for fuel conservation amongst your friends and relatives. There are three areas where the motorist can save fuel- proper maintenance, efficient driving habits and intelligent purchase of a vehicle. One of the best ways to save fuel is to reduce speed, as speed increases, fuel economy decreases exponentially. Tyre pressure and car's dirty air filter should be checked, if not, it could harm its performance and economy. Petrol is also called black gold. </h3>
 
 </body>
 </html>
